@@ -5,3 +5,7 @@ Work in progress - creating API backend in Golang fit to accommodate SPA + mobil
 - _quicknode is hubspot node.js/express app starter - featuring here as reference for the V2, it will be .gitignored shortly
 
 - vendor holds https://github.com/retgits/hubspot library (nice work, [Leon Stigter](https://github.com/retgits)!)
+
+## Key Feature
+
+- HubSpot webhook to websocket bridge
