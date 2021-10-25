@@ -35,7 +35,7 @@ Gina obliged yet again. It was an island, after all, rich in spices of any kind.
 
 Our salesman spent few moments in deep contemplation, then told Gina not to move, got up from the bed, approached her from the back and whispered in her ear:
 
-“Listen pal, I had an awesome career in sales. I was coining it. Then I took a holiday, the shit happened and here I am. Now, I know there’s a lot of prejudice harboured around about sales people, so you won’t maybe believe me… but the only two survivors were Lollobrigida and me and by now I’m bored of fucking her. She’s my wife by now for all intents and purposes. Get it?”
+“Listen pal, I had an awesome career in sales. I was coining it. Then I took a holiday, the shit happened and here I am. Now, I know there’s a lot of prejudice harboured around about sales people, so you won’t maybe believe me… but the only two survivors were Lollobrigida and me and by now I’m bored of fucking her. She’s, like, my wife for all intents and purposes, get it?”
 
 Then our salesman went back to the bed, connected again with his balls and, after some more contemplation, concluded:
 
