@@ -8,5 +8,5 @@ So, yes, the short stories and poetry embedded into the repo are my thang. Tis p
 
 This particular story, containing some vaguely foul language under the pretence of artistic freedom claimed within an unusual space (think "repo graffiti"), also has as its aim to test GitHub's / Microsoft's lexical processing ability and their openness to emerging and unexpected cultural phenomena.
 
-Speaking off, if you are still reading this and you happen know anyone who has done a similar thing before, please open an Issue and leave their repo link - I'd really appreciate that.
+Speaking off, if you are still reading this and you happen to know anyone who has done a similar thing before, please open an Issue and leave their repo link - I'd really appreciate that.
 
