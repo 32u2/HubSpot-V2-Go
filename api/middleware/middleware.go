@@ -4,8 +4,8 @@ import (
 	"errors"
 	"net/http"
 
-	"rest/api/auth"
-	"rest/api/responses"
+	"hubspot/api/auth"
+	"hubspot/api/responses"
 )
 
 func SetMiddlewareJSON(next http.HandlerFunc) http.HandlerFunc {
