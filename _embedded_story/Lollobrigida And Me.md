@@ -2,9 +2,9 @@ Lollobrigida And Me
 
 (short story)
 
-I heard this as a joke, not sure how politically correct though, as it in its original incarnation mentioned the name of a real actress. I think it was Michelle Pfeiffer, so the joke can’t be recent either. Also… people embellish verbally told stories over time, sometime offering new details which would make the story appear more "accurate", or more contemporary. That is how, before we know, some really good stories to boot turn into the fuckups of biblical proportions. Or into a witty piece exploiting at least two clichés postmodernism gave us: use of "found material", pastiche of sorts, and self-referentiality.
+I heard this as a joke, not sure how politically correct though, as it in its original incarnation mentioned the name of a real actress. I think it was Michelle Pfeiffer, so the joke can’t be recent either. Also… people embellish verbally told stories over time, sometime offering new details which would make the story appear more "accurate", or more contemporary. That is how, before we know, some really good stories to boot turn into the fuckups of biblical proportions. Or into a witty piece exploiting at least two clichés postmodernism gave us: the use of "found material", pastiche of sorts, and self-referentiality.
 
-Because this particular joke is in many ways so particularly crude, I suspect it might have been even older than the Pfeiffer ‘s Eighties. The name Gina Lollobrigida comes to mind. It connects nicely with what we today remember as the very crude McCarthy Era. The name may mean nothing to today's hipsters and trannies, but fuckem if they're not interested where their parents' generation is coming from. (https://en.wikipedia.org/wiki/Gina_Lollobrigida). 
+Because this particular joke is in many ways so particularly crude, I suspect it might have been even older than the Pfeiffer ‘s Eighties. The name Gina Lollobrigida comes to mind. It connects nicely with what we today remember as the very crude McCarthy Era. The name may mean nothing to today's hipsters of today, but fuckem if they're not interested where their parents' generation is coming from. (https://en.wikipedia.org/wiki/Gina_Lollobrigida). 
 
 This is what I found in one thread, while doing research for this piece:
 
